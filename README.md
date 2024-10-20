@@ -1,2 +1,2 @@
 # Cyoukinn01
-Cyoukinnhasaikou
+Cyoukinnhasaikou!
